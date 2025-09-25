@@ -56,4 +56,4 @@ Curious, hands-on developer who loves shipping clean, testable features. I enjoy
 ---
 
 ## Contact
-📧 **Email:** your.name@example.com
+📧 **Email:** plepetrov422@gmail.com
